@@ -9,12 +9,25 @@ FEEL VERY FREE TO BMF but just 2 notify you i am a minor
 REMINDER THAT SINCE I AM A MINOR I AM STILL MATURING 
 i am a chester fictkin if a manchester roleplayer approaches me without permissions or isnt my party memember nor friend i will put a gun up my mouth
 I HAVE NOT VERIFIED MY EMAIL FOR ATA DO NOT SIGN
-<img width="1125" height="520" alt="Chester icon 2" src="https://github.com/user-attachments/assets/c8724cbc-c5cd-40f7-b002-1902e37565d5"/>
-<img width="100" height="80" alt="Unknown" src="https://github.com/user-attachments/assets/12798c18-815d-4eb0-8055-b5339222dd07" />
- the sauce
-<img width="120" height="81" alt="Unknown 2" src="https://github.com/user-attachments/assets/bc048f86-af30-46dc-bbec-78fd14adf846" />
 
-<img width="560" height="120" alt="Unknown 8" src="https://github.com/user-attachments/assets/8c0cf343-fedb-46d7-b8e9-8a00c043a0bf" />
+
+
+
+<img width="334" height="223" alt="Unknown 11" src="https://github.com/user-attachments/assets/1e8d7e18-6d50-4990-b4b4-a218675dcd2a" 
+  /><img width="334" height="223" alt="Unknown 10" src="https://github.com/user-attachments/assets/741d2019-4db3-491c-a3d8-5864ea8a070e" />
+
+
+
+
+
+
+
+
+
+
+
+<
+
 
 
 
