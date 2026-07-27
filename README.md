@@ -31,8 +31,9 @@ I HAVE NOT VERIFIED MY EMAIL FOR ATA DO NOT SIGN
 
 
 
-i am drachester infected I AMTHE DRACHESTER QUEEN IAMTHERARESHIPPER  ILOVEDRACHESTER  I AM THE RARELY GOOD AT SHIPPING CHUD I LVE DRACHESTER I AM THE DRACHESTERYAOILORD okim sorry and i can live without the ship im not a fujoshi
-Bye!
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=9d1212&center=true&vCenter=true&repeat=true&width=700&lines=FLAME+WAAAAARRR!;TURNING+IT+UP+TO+ELEVEN!;FANCY+LANCY!" />
+</p>
 
 
 
