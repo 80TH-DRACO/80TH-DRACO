@@ -8,7 +8,7 @@ i am workimg on this page as i am focusing on my studies rn
 FEEL VERY FREE TO BMF but just 2 notify you i am a minor
 REMINDER THAT SINCE I AM A MINOR I AM STILL MATURING 
 i am a chester fictkin if a manchester roleplayer approaches me without permissions or isnt my party memember nor friend i will put a gun up my mouth
-I HAVE NOT VERIFIED MY EMAIL FOR ATA DO NOT SIGN
+I HAVE NOT VERIFIED MY EMAIL FOR ATA DO NOT SIGN do i need to explain what the default icons here represent
 
 
 
