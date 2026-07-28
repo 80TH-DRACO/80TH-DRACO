@@ -4,7 +4,7 @@
   
   chester yumes iwc i do NOT like you and dont rub it in my face otherwise dni / iwec
 ido i need to explain what ever is here represents
-IM NOT RUSSIAN,TURKISH AND SPAIN BTW
+IM NOT RUSSIAN,TURKISH,ARABIAN AND SPAIN BTW
 
 
 
