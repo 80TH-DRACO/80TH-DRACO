@@ -1,6 +1,6 @@
 
   
-  chester yumes,manchester roleplayers,mandy fictkins iwc i do NOT like you and dont rub it in my face otherwise dni / iwec
+  ,manchester roleplayers,mandy+ chester fictkins iwc when im in my mandy or chester skin i do NOT like you and dont rub it in my face otherwise dni / iwec
 ido i need to explain what ever is here represents
 IM NOT RUSSIAN,TURKISH,ARABIAN AND SPAIN
  
