@@ -22,7 +22,7 @@ IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH
 
 
 <p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=9d1212&center=true&vCenter=true&repeat=true&width=700&lines=MASTER+OF+MUPPETS!;TURNING+IT+UP+TO+ELEVEN!;FANCY+LANCY!" />
+  <img src="https://readme-typing-svg.demolab.comfont=Syne+Mono&size=28&pause=20&color=9d1212&center=true&vCenter=true&repeat=true&width=700&lines=MASTER+OF+MUPPETS!;TURNING+IT+UP+TO+ELEVEN!;FANCY+LANCY!" />
 </p>
 
 
