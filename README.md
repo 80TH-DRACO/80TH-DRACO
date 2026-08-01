@@ -2,7 +2,7 @@
   
   ,manchester roleplayers,mandy+ chester fictkins iwc when im in my mandy or chester skin i do NOT like you and dont rub it in my face otherwise dni / iwec
 ido i need to explain what ever is here represents
-IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH
+IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH I HATEDRAGONCEST ILL BLOCK ALL SHIPPERS GETYOURFUCKINGHANDSOFFMYBROTHERS BITCH ILLKILL YOU
  
   <img width="334" height="223" alt="Unknown 10" src="https://github.com/user-attachments/assets/741d2019-4db3-491c-a3d8-5864ea8a070e" />
 
