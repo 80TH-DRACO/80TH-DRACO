@@ -52,5 +52,6 @@ IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH I HATE
 
 
 
-<img width="998" height="443" alt="Untitled22_20260802174816" src="https://github.com/user-attachments/assets/994b65f4-1d46-41bd-962e-8995635431d7" />
+<img width="1150" height="556" alt="Untitled22_0000-06-24_20260802185139" src="https://github.com/user-attachments/assets/6eb3dcaf-3da6-4db6-80f5-a6580d035ef3" />
+
 
