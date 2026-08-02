@@ -1,7 +1,9 @@
-<img width="1150" height="556" alt="Untitled22_20260802174200" src="https://github.com/user-attachments/assets/80d167c9-bb81-41c9-93fa-6cb70a616ca7" />
+<img width="6475" height="2000" alt="Untitled25_20260802220013" src="https://github.com/user-attachments/assets/b1273960-01d2-4725-92d1-aa042adc3f45" />
 
 
-<img width="1836" height="880" alt="1000025465" src="https://github.com/user-attachments/assets/079fc732-6a44-4eac-8385-cfad49c26889" />
+
+<img width="3279" height="2000" alt="Untitled22_0000-06-24_20260802191650" src="https://github.com/user-attachments/assets/1edcf608-17d6-47af-acb0-02e5bde9df9a" />
+
 
 
   
@@ -15,7 +17,7 @@ IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH I HATE
   
   
   
-  <img width="334" height="223" alt="Unknown 10" src="https://github.com/user-attachments/assets/741d2019-4db3-491c-a3d8-5864ea8a070e" />
+
 
 
 
@@ -52,6 +54,7 @@ IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH I HATE
 
 
 
-<img width="1150" height="556" alt="Untitled22_0000-06-24_20260802185139" src="https://github.com/user-attachments/assets/6eb3dcaf-3da6-4db6-80f5-a6580d035ef3" />
+<img width="6475" height="2000" alt="Untitled25_20260802220031" src="https://github.com/user-attachments/assets/aac86fd1-16c8-4d99-8945-3f858c2658dc" />
+
 
 
