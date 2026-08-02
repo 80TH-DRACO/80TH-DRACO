@@ -7,11 +7,7 @@
 
 
   
-  ,manchester roleplayers,mandy+ chester fictkins iwc when im in my mandy or chester skin i do NOT like you and dont rub it in my face otherwise dni / iwec
-ido i need to explain what ever is here represents
-IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH I HATEDRAGONCEST ILL BLOCK ALL SHIPPERS GETYOURFUCKINGHANDSOFFMYBROTHERS BITCH ILLKILL YOU
-
- you cant put darkshippers + proshippers dni when shipping kenji x Damian and Melodie x janet IT DOESNT WORK LIKE THAT 
+  PLS READ MY STRAWPAGES 😳😳😳😳😳
 
   
   
