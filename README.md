@@ -22,7 +22,8 @@ IM NOT A RUSSIAN,TURKISH,ARABIAN AND SPAIN SPEAKER I MAINLY SPEAK ENGLISH I HATE
 
 
 
-<img width="332" height="223" alt="Draco 2" src="https://github.com/user-attachments/assets/c17d8edc-6a80-42f8-966f-241f356e26fd" />
+<img width="334" height="223" alt="Unknown 4" src="https://github.com/user-attachments/assets/aa91d0a7-6f71-4276-84ee-706cd566c1cf" />
+
 
 
 
