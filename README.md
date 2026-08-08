@@ -2,7 +2,7 @@
 
 
 
-<img width="3279" height="2000" alt="Untitled22_0000-06-24_20260802191650" src="https://github.com/user-attachments/assets/1edcf608-17d6-47af-acb0-02e5bde9df9a" />
+p
 
 
 
