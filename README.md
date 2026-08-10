@@ -1,3 +1,16 @@
+
+<img width="887" height="336" alt="IMG_0218" src="https://github.com/user-attachments/assets/42238daf-62fe-4417-b7f1-bc922e061ec8" />
+
+
+
+
+
+
+
+
+
+
+
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
 
@@ -65,5 +78,7 @@
 <img width="99" height="56" alt="IMG_0211" src="https://github.com/user-attachments/assets/d22153db-da73-42ff-987e-60a02162b152" />
 <img width="99" height="56" alt="IMG_0212" src="https://github.com/user-attachments/assets/4a393f21-f9a9-48f2-8fe1-1cf951c19c07" />
 
+<img width="99" height="56" alt="IMG_0220" src="https://github.com/user-attachments/assets/0fad2aaf-77c8-4600-a61e-3f34a01be5b5" />
+<img width="99" height="56" alt="IMG_0219" src="https://github.com/user-attachments/assets/61141896-2d1f-4de7-8910-d96ea878b8b5" />
 
 
