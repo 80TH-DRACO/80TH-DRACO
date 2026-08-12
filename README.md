@@ -122,8 +122,8 @@
 
 
 
-
-
+Draster is yaoislop and i ship it wooo so scary atleast it isnt a proship 😭😭😭😭😭😭😭😭😭😭😭😭😭😭
+Lumraco canon and i ship it too wooooo cry about it i can multiship 😂😂😂😂😂😂😂😂😂😂😂
 
 
 
