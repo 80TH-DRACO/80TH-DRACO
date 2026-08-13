@@ -1,4 +1,4 @@
-
+[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMadevilManor&label=my%20skibidi%20sigmas&labelColor=%23000000&countColor=%23ff3100&style=plastic&labelStyle=upper)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FMadevilManor)
 <img width="990" height="440" alt="Unknown 19" src="https://github.com/user-attachments/assets/84719d7c-4795-466a-8a6c-1388ec3b9e11" />
 
 
