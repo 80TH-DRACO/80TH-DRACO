@@ -1,4 +1,4 @@
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FMadevilManor&label=did%20u%20come%20here%202%20hear%20my%20story%3F&labelColor=%23000000&countColor=%23ff3100&style=plastic&labelStyle=upper)
+![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO%20&label=MY%20AUDIENCE&labelColor=%23ff3311&countColor=%237a930a&style=flat-square&labelStyle=upper)
 <img width="990" height="440" alt="Unknown 19" src="https://github.com/user-attachments/assets/84719d7c-4795-466a-8a6c-1388ec3b9e11" />
 
 
