@@ -11,7 +11,7 @@
 
 <img width="127" height="60" alt="IMG_0439" src="https://github.com/user-attachments/assets/792171bc-dcf2-42b9-810d-c7ba22938027" />
 <img width="108" height="60" alt="IMG_0438" src="https://github.com/user-attachments/assets/a6024ab6-b3ce-4c18-b32f-422fe9c899d3" />
-<img width="104" height="60" alt="IMG_0440" src="https://github.com/user-attachments/assets/901ee611-4539-44b4-bd29-dd6481b061b4" />
+<img width="84" height="40" alt="IMG_0440" src="https://github.com/user-attachments/assets/901ee611-4539-44b4-bd29-dd6481b061b4" />
 
 
 
