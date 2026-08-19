@@ -1,5 +1,6 @@
 ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO%20&label=MY%20AUDIENCE&labelColor=%23ff3311&countColor=%237a930a&style=flat-square&labelStyle=upper)
-<img width="990" height="440" alt="Unknown 19" src="https://github.com/user-attachments/assets/84719d7c-4795-466a-8a6c-1388ec3b9e11" />
+<img width="1500" height="182" alt="IMG_0424" src="https://github.com/user-attachments/assets/2d92ab57-0bb2-4f07-9b99-4c0dcaba0f3c" />
+
 
 
 
