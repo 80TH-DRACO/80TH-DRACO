@@ -43,7 +43,7 @@ i am formally leu . 12-13 years old , demiaroace + genderfluid ,, i can be an as
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <img width="445" height="334" alt="Untitled40_20260820214042" src="https://github.com/user-attachments/assets/ba82b980-9aaa-45db-b7ac-faab755d3d5c" />
 # ──★˙🎸̟!! ๋੭﹕﹒ . ( Interests , fandoms , favourites etc etc ,.. )
- i am in fandoms like… : Brawl stars , CRTOA , Dollys Factory , Blocktales , The Robloxia : Until Dawn ,  Maybe CRK + AHA  . 
+ i am in fandoms like… : Brawl stars , CRTOA , Dollys Factory , Blocktales , The Robloxia : Until Dawn , Die of Death. Maybe CRK + AHA  . 
 people who assume i only like Draco.. i also like mandy , chester , lumi , larry,lawrie and  finx
 more ships i like are..
 
@@ -56,3 +56,5 @@ more ships i like are..
 ͙͘͡★ Kolhallot (Kolhrabi x Shallot) Butterhlrabi (Buttermilk x Kolhrabi) . DewZest (Dew drop cookie x Lemon zest ) # CRTOA 
 
  ⬩➤ CoffeeSecretary (Barney x Secretary) HeadCamera (Head nurse x Liz) SecurityAgent ( Security x Secret Agent) #AHA
+
+ ⬩➤ LoveMedic (Loveshot x Medic) , HarkDroid (Killdroid x Harken) TauntPeel (Taunt x Banana Peel ) #DIEOFDEATH
