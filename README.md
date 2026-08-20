@@ -51,7 +51,7 @@ more ships i like are..
 
 ͙ ͙͘͡★ GangsterRequest (Finn McCool x Player ) + FrozenMayor ( Mayor thaniyel x Cruel King )  #BlockTales
 
-͙͘͡★ MedicBattler ( Jane doe x BrickBatller ) Saw666 (Hacksaw / SawNoob x Guest 666. ) #TRUD
+͙͘͡★ MedicBattler ( Jane doe x BrickBatller ) SlingAcorn (Slingshotter x Acorn Hair ) #TRUD
 
 ͙͘͡★ Kolhallot (Kolhrabi x Shallot) Butterhlrabi (Buttermilk x Kolhrabi) . DewZest (Dew drop cookie x Lemon zest ) # CRTOA 
 
