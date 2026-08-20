@@ -46,7 +46,13 @@ i am formally leu . 12-13 years old , demiaroace + genderfluid ,, i can be an as
  i am in fandoms like… : Brawl stars , CRTOA , Dollys Factory , Blocktales , The Robloxia : Until Dawn ,  Maybe CRK + AHA  . 
 people who assume i only like Draco.. i also like mandy , chester , lumi , larry,lawrie and  finx
 more ships i like are..
+
 ͙͘͡★- JesterBell ( Meistro x jellybell ) + SheepDog (Buddy x Fleecia ) #DollysFactory
+
 ͙ ͙͘͡★ GangsterRequest (Finn McCool x Player ) + FrozenMayor ( Mayor thaniyel x Cruel King )  #BlockTales
+
 ͙͘͡★ MedicBattler ( Jane doe x BrickBatller ) Saw666 (Hacksaw / SawNoob x Guest 666. ) #TRUD
-͙͘͡★ Kolhallot .
+
+͙͘͡★ Kolhallot (Kolhrabi x Shallot) Butterhlrabi (Buttermilk x Kolhrabi) . DewZest (Dew drop cookie x Lemon zest ) # CRTOA 
+
+ ⬩➤ CoffeeSecretary (Barney x Secretary) HeadCamera (Head nurse x Liz) SecurityAgent ( Security x Secret Agent) #AHA
