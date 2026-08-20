@@ -142,6 +142,10 @@
 
 # DRACO
 i am formally leu . 12-13 years old , demiaroace + genderfluid ,, i can be an asshole and be sensitive so suck it up . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  + chinese , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is i think its being mean or something  youll ALWAYS catch me sitting at brawl stars spot guys heh ,,, GUYS I DONT YUMESHIP DRACO JUST BECAUSE MY WHOLE PROFILE IS DRACO ,,  . Anyways ,, Forsaken players+ Forsaken developer supporters dni respectfully .## melodraco shippers respectfully and kindly dni sorry i dislike the ship ..
-⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+
+
+
+
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 <img width="445" height="334" alt="Untitled40_20260820214042" src="https://github.com/user-attachments/assets/ba82b980-9aaa-45db-b7ac-faab755d3d5c" />
 
