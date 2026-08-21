@@ -34,9 +34,29 @@
 <img width="99" height="56" alt="IMG_0331" src="https://github.com/user-attachments/assets/a75fe158-8f10-4868-b94b-f85be8f20606" />
 <img width="103" height="59" alt="IMG_0542" src="https://github.com/user-attachments/assets/21722ea3-b84f-46c9-a9d0-696f1def96e2" />
 <img width="99" height="56" alt="IMG_0539" src="https://github.com/user-attachments/assets/560d4f5b-7aef-421b-a212-c42d13da7b2c" />
-<img width="99" height="56" alt="IMG_0381" src="https://github.com/user-attachments/assets/62b36f63-b191-45a5-ab38-41bd175aa10b" />
 <img width="99" height="56" alt="IMG_0514" src="https://github.com/user-attachments/assets/a98ddfbc-7e41-48d4-8ffe-15ad7ba99b39" />
+<img width="99" height="56" alt="IMG_0381" src="https://github.com/user-attachments/assets/62b36f63-b191-45a5-ab38-41bd175aa10b" /><img width="99" height="56" alt="IMG_0376" src="https://github.com/user-attachments/assets/1afbafa5-3a5d-4674-b5cb-e6c0375f2ac9" />
 
+<img width="99" height="56" alt="IMG_0375" src="https://github.com/user-attachments/assets/37855ef6-1ef9-441d-acf8-4e777388cc96" />
+<img width="99" height="56" alt="IMG_0380" src="https://github.com/user-attachments/assets/19175f59-9070-4478-90bc-f664bdcba3ec" />
+<img width="99" height="56" alt="IMG_0382" src="https://github.com/user-attachments/assets/7b7ba4cf-0afd-4d33-9196-ecd2d8f340a1" />
+<img width="99" height="56" alt="IMG_0379" src="https://github.com/user-attachments/assets/71ceadf0-25d3-45a6-90da-7e98f6d75088" />
+<img width="99" height="56" alt="IMG_0377" src="https://github.com/user-attachments/assets/4526495b-123d-4659-be72-6cb6b4c6f9be" />
+<img width="99" height="56" alt="IMG_0378" src="https://github.com/user-attachments/assets/adcfd11e-ec5c-4e5d-9c3c-2e31adc64396" />
+<img width="99" height="56" alt="IMG_0383" src="https://github.com/user-attachments/assets/5efbccd2-ca96-49b7-9305-a54ee7283ce2" />
+
+<img width="1500" height="182" alt="IMG_0424" src="https://github.com/user-attachments/assets/7e708aff-3624-4304-9a29-b45f4f236275" />
+<img width="150" height="20" alt="IMG_0436" src="https://github.com/user-attachments/assets/19b9831e-b98a-4eb3-a4b3-7c4a429d503c" />
+<img width="150" height="20" alt="IMG_0433" src="https://github.com/user-attachments/assets/809e45a0-6a12-431e-b9e4-ec810e46e805" />
+<img width="150" height="20" alt="IMG_0434" src="https://github.com/user-attachments/assets/302b06ec-8294-4d24-9a95-2ab7d0b01bda" />
+<img width="150" height="20" alt="IMG_0420" src="https://github.com/user-attachments/assets/fee51d47-087e-4524-b728-2f04727fca46" />
+<img width="150" height="20" alt="IMG_0418" src="https://github.com/user-attachments/assets/26b49a86-f43c-4990-8a08-d0743af4c729" />
+<img width="150" height="20" alt="IMG_0419" src="https://github.com/user-attachments/assets/fbf568f8-6a00-4561-80f6-7ce78d6cb610" />
+<img width="150" height="20" alt="IMG_0417" src="https://github.com/user-attachments/assets/6efa7b86-da44-424f-88bb-bf7c1c59e7ff" />
+<img width="60" height="18" alt="IMG_0440" src="https://github.com/user-attachments/assets/05866aa9-07ec-488f-8e93-9a5bc4e262db" />
+<img width="83" height="18" alt="IMG_0439" src="https://github.com/user-attachments/assets/81e441cb-920d-425c-832a-c7c60d672a53" />
+<img width="64" height="18" alt="IMG_0438" src="https://github.com/user-attachments/assets/542d6f38-8e0d-4d9c-85ec-e5de45d8d29d" />
+<img width="1500" height="182" alt="IMG_0425" src="https://github.com/user-attachments/assets/fe7f8ba6-330d-4566-aeb3-80af3143291f" />
 
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
