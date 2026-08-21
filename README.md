@@ -102,3 +102,8 @@ more ships i like are..
  ⬩➤ CoffeeSecretary (Barney x Secretary) HeadCamera (Head nurse x Liz) SecurityAgent ( Security x Secret Agent) #AHA
 
  ⬩➤ LoveMedic (Loveshot x Medic) , HarkDroid (Killdroid x Harken) TauntPeel (Taunt x Banana Peel ) #DIEOFDEATH
+
+honestly i support most ships that aren’t darkships, proships etc …. 
+
+<img width="554" height="443" alt="IMG_0513" src="https://github.com/user-attachments/assets/6cbefc0a-3378-4b76-b6df-23fa1d197d42" />
+
