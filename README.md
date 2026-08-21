@@ -68,7 +68,7 @@
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=7a930a&center=true&vCenter=true&repeat=true&width=700&lines=BERSERKER+BRO!;METAL+HEART+NEVER+TAPS+OUT!;THE+ARENA+IS+MINE!;Lets+get+physical!;FLAMES+OF+FURY!;Brothers+Ill+be+back!;Stay+down+shows+over.;This+bro+is+ready+for+show!;OOOH+ANOTHER+MATCH+ANOTHER+LEGEND!;.;Just+a+dramatic+pause.;Sorry+i+dont+know+my+own+strength!;!;Now+try+to+keep+up+little+brothers!;Hahaha+Draco+and+Lumi+sitting+in+a+tree!;Madevil+Maniac!;Moshpit!;Encore?;Nah+youre+done.;That+all+you+got?;The+crowd+wants+more!;Metal+Heart+ready+to+restart!;Oh+look+im+amazing!;The+crowd+wants+more!;My+heart+is+unbreakable+but+keep+trying!;Behold+the+metal+heart!;The+arena+fades.;Rgh+SEE+YOU+in+the+next+round.;Ohoho+lucky+shot+wont+happen+again.;barely+felt+it!;back+up+or+ill+go+berserk!;Mmm+lets+make+some+noise!;Even+the+pits+on+my+side!;Heart+made+of+steel+nothing+feels+more+real!;Ah+you+got+too+close+nap+time."/>
 
 # DRACO
-i am formally leu . 12-13 years old , demiaroace + genderfluid ,, i can be an asshole and be sensitive so suck it up . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  + chinese , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is i think its being mean or something  youll ALWAYS catch me sitting at brawl stars spot guys heh ,,, GUYS I DONT YUMESHIP DRACO JUST BECAUSE MY WHOLE PROFILE IS DRACO ,,  . Anyways ,, Forsaken players+ Forsaken developer supporters dni respectfully .## melodraco shippers respectfully and kindly dni sorry i dislike the ship ..
+i am formally leu . 12-13 years old , demiaroace + genderfluid ,, p . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  + chinese , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is i think its being mean or something  youll ALWAYS catch me sitting at brawl stars spot guys heh ,,, GUYS I DONT YUMESHIP DRACO JUST BECAUSE MY WHOLE PROFILE IS DRACO ,,  . ..
 
 
 
@@ -95,4 +95,14 @@ more ships i like are..
 honestly i support most ships that aren’t darkships, proships etc …. 
 
 <img width="554" height="443" alt="IMG_0513" src="https://github.com/user-attachments/assets/6cbefc0a-3378-4b76-b6df-23fa1d197d42" />
-
+# DNI / BYI (I think….) 
+PLEASE do not sexually joke about me. i am. an minor and that would make you a pervert no matter what .  
+, Forsaken players+ Forsaken developer supporters dni respectfully .## melodraco shippers respectfully and kindly dni sorry i dislike the ship 
+, Boundary breakers dni kindly .. (⊙ _ ⊙ ) 
+, People who intentionally misgender people or fictional characters DNI at all . hate you guys 
+, Please do not take inspo or copy my ponies at all.. 
+, People who make any offensive stereotypes towards any religon,country,culture and harass people for having different beliefs DNI you guys fucking suck . 
+, People who ship themselves with a canonical lesbian / gay character although you identify/are an male/female DNI . 
+, i can be an asshole and be sensitive so suck it up . 
+, im mainly quiet but ill talk more when i know more about you and im comfortable with you !!! 
+_____________________๑♡⁠๑_________________________
