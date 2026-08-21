@@ -98,12 +98,29 @@ honestly i support most ships that aren’t darkships, proships etc ….
 
 # DNI / BYI (I think….) 
 PLEASE do not sexually joke about me. i am. an minor and that would make you a pervert no matter what .  
+
+
 , Forsaken players+ Forsaken developer supporters dni respectfully .## melodraco shippers respectfully and kindly dni sorry i dislike the ship 
+
+
+
 , Boundary breakers dni kindly .. (⊙ _ ⊙ ) 
+
+
 , People who intentionally misgender people or fictional characters DNI at all . hate you guys 
+
+
 , Please do not take inspo or copy my ponies at all.. 
+
+
 , People who make any offensive stereotypes towards any religon,country,culture and harass people for having different beliefs DNI you guys fucking suck . 
+
+
 , People who ship themselves with a canonical lesbian / gay character although you identify/are an male/female DNI . 
+
+
 , i can be an asshole and be sensitive so suck it up . 
+
+
 , im mainly quiet but ill talk more when i know more about you and im comfortable with you !!! 
 _____________________๑♡⁠๑_________________________
