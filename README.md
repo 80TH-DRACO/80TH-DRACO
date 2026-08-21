@@ -95,6 +95,7 @@ more ships i like are..
 honestly i support most ships that aren’t darkships, proships etc …. 
 
 <img width="554" height="443" alt="IMG_0513" src="https://github.com/user-attachments/assets/6cbefc0a-3378-4b76-b6df-23fa1d197d42" />
+
 # DNI / BYI (I think….) 
 PLEASE do not sexually joke about me. i am. an minor and that would make you a pervert no matter what .  
 , Forsaken players+ Forsaken developer supporters dni respectfully .## melodraco shippers respectfully and kindly dni sorry i dislike the ship 
