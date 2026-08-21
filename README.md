@@ -123,4 +123,12 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 
 
 , im mainly quiet but ill talk more when i know more about you and im comfortable with you !!! 
+
+
+, i have more dnis in my strawpage go read ,, 
+
 _____________________๑♡⁠๑_________________________
+
+
+<img width="445" height="334" alt="Unknown 42" src="https://github.com/user-attachments/assets/8aefa80d-49ae-4a80-941e-076914833252" />
+
