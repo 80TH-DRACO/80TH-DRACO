@@ -129,6 +129,8 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 
 
 , UGHHHH I DONT YUME DRACO I KIN HIM HES AN ADULT IM 12-13 BRAH ,,, 
+
+. note: i do NOT roleplay as draco casually although i kin him .
 _____________________๑♡⁠๑_________________________
 
 
