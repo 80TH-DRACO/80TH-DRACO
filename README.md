@@ -127,6 +127,8 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 
 , i have more dnis in my strawpage go read ,, 
 
+
+, UGHHHH I DONT YUME DRACO I KIN HIM HES AN ADULT IM 12-13 BRAH ,,, 
 _____________________๑♡⁠๑_________________________
 
 
