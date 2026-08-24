@@ -134,5 +134,6 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 _____________________๑♡⁠๑_________________________
 
 
-<img width="445" height="334" alt="Unknown 42" src="https://github.com/user-attachments/assets/8aefa80d-49ae-4a80-941e-076914833252" />
+<img width="621" height="440" alt="Screenshot_20260805_020951_YouTube" src="https://github.com/user-attachments/assets/9fec181c-9082-4a58-a257-aab42d27b122" />
+
 
