@@ -71,7 +71,6 @@
 i am formally leu . 12-13 years old , demiaroace + genderfluid ,, p . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  + chinese , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is i think its being mean or something  youll ALWAYS catch me sitting at brawl stars spot guys heh ,,, GUYS I DONT YUMESHIP DRACO JUST BECAUSE MY WHOLE PROFILE IS DRACO ,,  . ..
 
 
-https://github.com/user-attachments/assets/07183849-80dc-4189-b50d-c3c2f4630f20
 
 
 
