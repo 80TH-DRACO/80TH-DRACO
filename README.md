@@ -137,6 +137,4 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 _____________________๑♡⁠๑_________________________
 
 
-<img width="621" height="440" alt="Screenshot_20260805_020951_YouTube" src="https://github.com/user-attachments/assets/9fec181c-9082-4a58-a257-aab42d27b122" />
-
-
+<img width="400" height="244" alt="From Klickpin com- Wanderlust world culture moments and clever inspiration for beginners for culture-rich mood boards-pin-id-878201996108419203" src="https://github.com/user-attachments/assets/377ba086-f8a8-4dfb-9eb2-3df7635afc4b" />
