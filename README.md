@@ -99,10 +99,10 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 , im mainly quiet but ill talk more when i know more about you and im comfortable with you !!! 
 
 
-, i have more dnis in my strawpage go read ,, 
+, i have more info in my leuthelarper + dracothemleu strawpage go read ,, 
 
 
-, UGHHHH I DONT YUME DRACO I KIN HIM HES AN ADULT IM 12-13 BRAH ,,, 
+, UGHHHH I DONT YUME DRACO I KIN HIM ,,, 
 
 . note: i do NOT roleplay as draco casually although i kin him .
 _____________________๑♡⁠๑_________________________
