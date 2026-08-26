@@ -68,38 +68,9 @@
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=7a930a&center=true&vCenter=true&repeat=true&width=700&lines=BERSERKER+BRO!;METAL+HEART+NEVER+TAPS+OUT!;THE+ARENA+IS+MINE!;Lets+get+physical!;FLAMES+OF+FURY!;Brothers+Ill+be+back!;Stay+down+shows+over.;This+bro+is+ready+for+show!;OOOH+ANOTHER+MATCH+ANOTHER+LEGEND!;.;Just+a+dramatic+pause.;Sorry+i+dont+know+my+own+strength!;!;Now+try+to+keep+up+little+brothers!;Hahaha+Draco+and+Lumi+sitting+in+a+tree!;Madevil+Maniac!;Moshpit!;Encore?;Nah+youre+done.;That+all+you+got?;The+crowd+wants+more!;Metal+Heart+ready+to+restart!;Oh+look+im+amazing!;The+crowd+wants+more!;My+heart+is+unbreakable+but+keep+trying!;Behold+the+metal+heart!;The+arena+fades.;Rgh+SEE+YOU+in+the+next+round.;Ohoho+lucky+shot+wont+happen+again.;barely+felt+it!;back+up+or+ill+go+berserk!;Mmm+lets+make+some+noise!;Even+the+pits+on+my+side!;Heart+made+of+steel+nothing+feels+more+real!;Ah+you+got+too+close+nap+time."/>
 
 # DRACO
-i am formally leu . 12-13 years old , demiaroace + genderfluid ,, p . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  + chinese , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is i think its being mean or something  youll ALWAYS catch me sitting at brawl stars spot guys heh ,,, GUYS I DONT YUMESHIP DRACO JUST BECAUSE MY WHOLE PROFILE IS DRACO ,,  . ..
+i am formally leu . 12-13 years old , demiaroace + genderfluid ,, p . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  + chinese , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is bro ,honestly i support most ships that aren’t darkships, proships etc …. 
 
-
-
-
-
-
-
-⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
-<img width="445" height="334" alt="Untitled40_20260820214042" src="https://github.com/user-attachments/assets/ba82b980-9aaa-45db-b7ac-faab755d3d5c" />
-# ──★˙🎸̟!! ๋੭﹕﹒ . ( Interests , fandoms , favourites etc etc ,.. )
- i am in fandoms like… : Brawl stars , CRTOA , Dollys Factory , Blocktales , The Robloxia : Until Dawn , Die of Death. Maybe CRK + AHA  . 
-people who assume i only like Draco.. i also like mandy , chester , lumi , larry,lawrie and  finx
-more ships i like are..
-
-͙͘͡★- JesterBell ( Meistro x jellybell ) + SheepDog (Buddy x Fleecia ) #DollysFactory
-
-͙ ͙͘͡★ GangsterRequest (Finn McCool x Player ) + FrozenMayor ( Mayor thaniyel x Cruel King )  #BlockTales
-
-͙͘͡★ MedicBattler ( Jane doe x BrickBatller ) SlingAcorn (Slingshotter x Acorn Hair ) #TRUD
-
-͙͘͡★ Kolhallot (Kolhrabi x Shallot) Butterhlrabi (Buttermilk x Kolhrabi) . DewZest (Dew drop cookie x Lemon zest ) # CRTOA 
-
- ⬩➤ CoffeeSecretary (Barney x Secretary) HeadCamera (Head nurse x Liz) SecurityAgent ( Security x Secret Agent) #AHA
-
- ⬩➤ LoveMedic (Loveshot x Medic) , HarkDroid (Killdroid x Harken) TauntPeel (Taunt x Banana Peel ) #DIEOFDEATH
-
-honestly i support most ships that aren’t darkships, proships etc …. 
-
-<img width="554" height="443" alt="IMG_0513" src="https://github.com/user-attachments/assets/6cbefc0a-3378-4b76-b6df-23fa1d197d42" />
-
-# DNI / BYI (I think….) 
+# syufff like dni+ byi (I think….) 
 PLEASE do not sexually joke about me. i am. an minor and that would make you a pervert no matter what .  
 
 
