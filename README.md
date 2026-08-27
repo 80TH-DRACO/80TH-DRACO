@@ -91,17 +91,12 @@ PLEASE do not sexually joke about me. i am. an minor and that would make you a p
 , People who ship themselves with a canonical lesbian / gay character although you identify/are an male/female DNI . 
 
 
-, i can be an asshole and be sensitive so suck it up . 
-
-
 , im mainly quiet but ill talk more when i know more about you and im comfortable with you !!! 
 
 
 , i have more info in my leuthelarper + dracothemleu strawpage go read ,, 
-
-
-, UGHHHH I DONT YUME DRACO I KIN HIM ,,, 
-
+ ,,, 
+ 
 . note: i do NOT roleplay as draco casually although i kin him .
 _____________________๑♡⁠๑_________________________
 
