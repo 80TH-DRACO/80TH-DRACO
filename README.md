@@ -1,4 +1,4 @@
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️⠀ ⠀![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO&label=%F0%9F%8E%B8%E2%99%A1%E3%82%99&labelColor=%23cc4a29&countColor=%23cccc44&style=flat-square)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️⠀ ⠀![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO&label=%F0%9F%8E%B8%E2%99%A1%E3%82%99&labelColor=%23cc4a29&countColor=%23cccc44&style=flat-square)![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO&label=%F0%9F%8E%AA%20%E2%99%A1%E3%82%99&labelColor=%23f47373&countColor=%23000000&style=flat)
 <img width="1500" height="182" alt="IMG_0424" src="https://github.com/user-attachments/assets/2d92ab57-0bb2-4f07-9b99-4c0dcaba0f3c" />
 
 <img width="1990" height="182" alt="IMG_0429" src="https://github.com/user-attachments/assets/4f1659f8-5c1c-40ed-8634-48dcb3e15cc6" />
