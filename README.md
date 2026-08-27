@@ -60,9 +60,7 @@
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=7a930a&center=true&vCenter=true&repeat=true&width=700&lines=BERSERKER+BRO!;METAL+HEART+NEVER+TAPS+OUT!;THE+ARENA+IS+MINE!;Lets+get+physical!;FLAMES+OF+FURY!;Brothers+Ill+be+back!;Stay+down+shows+over.;This+bro+is+ready+for+show!;OOOH+ANOTHER+MATCH+ANOTHER+LEGEND!;.;Just+a+dramatic+pause.;Sorry+i+dont+know+my+own+strength!;!;Now+try+to+keep+up+little+brothers!;Hahaha+Draco+and+Lumi+sitting+in+a+tree!;Madevil+Maniac!;Moshpit!;Encore?;Nah+youre+done.;That+all+you+got?;The+crowd+wants+more!;Metal+Heart+ready+to+restart!;Oh+look+im+amazing!;The+crowd+wants+more!;My+heart+is+unbreakable+but+keep+trying!;Behold+the+metal+heart!;The+arena+fades.;Rgh+SEE+YOU+in+the+next+round.;Ohoho+lucky+shot+wont+happen+again.;barely+felt+it!;back+up+or+ill+go+berserk!;Mmm+lets+make+some+noise!;Even+the+pits+on+my+side!;Heart+made+of+steel+nothing+feels+more+real!;Ah+you+got+too+close+nap+time."/>
 
 
-<img width="223" height="112" alt="Unknown 27" src="https://github.com/user-attachments/assets/81266384-7e52-4dd4-87e8-33c3ab183990" />
-<img width="223" height="112" alt="Unknown 16" src="https://github.com/user-attachments/assets/45b6ef19-e906-4408-8f5f-69fb3208a714" />
-<img width="223" height="112" alt="Unknown 13" src="https://github.com/user-attachments/assets/675fa4f4-6b4c-4025-b986-b66b148b5e00" />
+<img width="480" height="322" alt="converted 2" src="https://github.com/user-attachments/assets/c42fae26-e410-47a5-96b6-78642d1688ba" />
 
  
 # DRACO
