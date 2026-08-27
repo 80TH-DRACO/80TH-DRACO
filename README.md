@@ -1,12 +1,9 @@
-<img width="223" height="112" alt="Unknown 27" src="https://github.com/user-attachments/assets/81266384-7e52-4dd4-87e8-33c3ab183990" />
-<img width="223" height="112" alt="Unknown 16" src="https://github.com/user-attachments/assets/45b6ef19-e906-4408-8f5f-69fb3208a714" />
-<img width="223" height="112" alt="Unknown 13" src="https://github.com/user-attachments/assets/675fa4f4-6b4c-4025-b986-b66b148b5e00" />
 
 
 <
 
 
-![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO%20&label=MY%20AUDIENCE&labelColor=%23ff3311&countColor=%237a930a&style=flat-square&labelStyle=upper)
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO&label=%F0%9F%8E%B8%E2%99%A1%E3%82%99&labelColor=%23cc4a29&countColor=%23cccc44&style=flat-square)
 <img width="1500" height="182" alt="IMG_0424" src="https://github.com/user-attachments/assets/2d92ab57-0bb2-4f07-9b99-4c0dcaba0f3c" />
 
 <img width="1990" height="182" alt="IMG_0429" src="https://github.com/user-attachments/assets/4f1659f8-5c1c-40ed-8634-48dcb3e15cc6" />
@@ -67,6 +64,12 @@
 
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=7a930a&center=true&vCenter=true&repeat=true&width=700&lines=BERSERKER+BRO!;METAL+HEART+NEVER+TAPS+OUT!;THE+ARENA+IS+MINE!;Lets+get+physical!;FLAMES+OF+FURY!;Brothers+Ill+be+back!;Stay+down+shows+over.;This+bro+is+ready+for+show!;OOOH+ANOTHER+MATCH+ANOTHER+LEGEND!;.;Just+a+dramatic+pause.;Sorry+i+dont+know+my+own+strength!;!;Now+try+to+keep+up+little+brothers!;Hahaha+Draco+and+Lumi+sitting+in+a+tree!;Madevil+Maniac!;Moshpit!;Encore?;Nah+youre+done.;That+all+you+got?;The+crowd+wants+more!;Metal+Heart+ready+to+restart!;Oh+look+im+amazing!;The+crowd+wants+more!;My+heart+is+unbreakable+but+keep+trying!;Behold+the+metal+heart!;The+arena+fades.;Rgh+SEE+YOU+in+the+next+round.;Ohoho+lucky+shot+wont+happen+again.;barely+felt+it!;back+up+or+ill+go+berserk!;Mmm+lets+make+some+noise!;Even+the+pits+on+my+side!;Heart+made+of+steel+nothing+feels+more+real!;Ah+you+got+too+close+nap+time."/>
 
+
+<img width="223" height="112" alt="Unknown 27" src="https://github.com/user-attachments/assets/81266384-7e52-4dd4-87e8-33c3ab183990" />
+<img width="223" height="112" alt="Unknown 16" src="https://github.com/user-attachments/assets/45b6ef19-e906-4408-8f5f-69fb3208a714" />
+<img width="223" height="112" alt="Unknown 13" src="https://github.com/user-attachments/assets/675fa4f4-6b4c-4025-b986-b66b148b5e00" />
+
+ 
 # DRACO
 i am formally leu . 12-13 years old , demiaroace + genderfluid ,, p . I ship draster , dralumi , manlumi , manlette and  cookiesrules ,  i am Asian  , I mainly encourage interacting but not when im around my party members its hard to focus sorry ,,   i cant tell what my love language is bro ,honestly i support most ships that aren’t darkships, proships etc …. 
 
