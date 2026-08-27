@@ -64,9 +64,13 @@
 <img width="150" height="20" alt="IMG_0418" src="https://github.com/user-attachments/assets/26b49a86-f43c-4990-8a08-d0743af4c729" />
 <img width="150" height="20" alt="IMG_0419" src="https://github.com/user-attachments/assets/fbf568f8-6a00-4561-80f6-7ce78d6cb610" />
 <img width="150" height="20" alt="IMG_0417" src="https://github.com/user-attachments/assets/6efa7b86-da44-424f-88bb-bf7c1c59e7ff" />
-<img width="60" height="18" alt="IMG_0440" src="https://github.com/user-attachments/assets/05866aa9-07ec-488f-8e93-9a5bc4e262db" />
-<img width="83" height="18" alt="IMG_0439" src="https://github.com/user-attachments/assets/81e441cb-920d-425c-832a-c7c60d672a53" />
-<img width="64" height="18" alt="IMG_0438" src="https://github.com/user-attachments/assets/542d6f38-8e0d-4d9c-85ec-e5de45d8d29d" />
+<img width="44" height="18" alt="IMG_0618" src="https://github.com/user-attachments/assets/3f3c73a6-eae8-4db5-aaa6-e0192be74a68" />
+<img width="80" height="18" alt="IMG_0615" src="https://github.com/user-attachments/assets/0532ae4a-c717-44eb-a889-fee6251a3fa1" />
+<img width="60" height="18" alt="IMG_0614" src="https://github.com/user-attachments/assets/0b367da2-d0db-4225-ac1e-4e087705388b" />
+<img width="75" height="18" alt="IMG_0613" src="https://github.com/user-attachments/assets/7182bb2d-9564-4c2c-83fe-13366487a47f" />
+<img width="86" height="26" alt="IMG_0617" src="https://github.com/user-attachments/assets/0e9ea443-eddb-48b8-a125-fcd03737d664" />
+<img width="78" height="24" alt="IMG_0616" src="https://github.com/user-attachments/assets/2f4cf5bf-4cf3-4520-8609-3ebfcfce9a4e" />
+
 <img width="1500" height="182" alt="IMG_0425" src="https://github.com/user-attachments/assets/fe7f8ba6-330d-4566-aeb3-80af3143291f" />
 
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
