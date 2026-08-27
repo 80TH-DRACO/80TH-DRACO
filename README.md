@@ -1,3 +1,11 @@
+<img width="334" height="223" alt="converted 2" src="https://github.com/user-attachments/assets/c42fae26-e410-47a5-96b6-78642d1688ba" />
+
+
+
+
+
+
+
 # BEST VIEWED ON IPAD ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀️️⠀ ⠀![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO&label=%F0%9F%8E%B8%E2%99%A1%E3%82%99&labelColor=%23cc4a29&countColor=%23cccc44&style=flat-square)![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F80TH-DRACO&label=%F0%9F%8E%AA%20%E2%99%A1%E3%82%99&labelColor=%23f47373&countColor=%23000000&style=flat)
 <img width="1500" height="182" alt="IMG_0424" src="https://github.com/user-attachments/assets/2d92ab57-0bb2-4f07-9b99-4c0dcaba0f3c" />
@@ -64,12 +72,12 @@
 <img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
 
-<img width="223" height="112" alt="2b275e62-a402-4a57-a72b-1981985f6c58" src="https://github.com/user-attachments/assets/73bc817f-fdb3-4fac-8e59-90617a673b52" />
+<img width="334" height="223" alt="2b275e62-a402-4a57-a72b-1981985f6c58" src="https://github.com/user-attachments/assets/73bc817f-fdb3-4fac-8e59-90617a673b52" />
 
 
 
 
-<img width="334" height="223" alt="converted 2" src="https://github.com/user-attachments/assets/c42fae26-e410-47a5-96b6-78642d1688ba" />
+
 
  
 # DRACO
