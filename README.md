@@ -96,4 +96,4 @@ ill remake this in a bit bro
 <img width="1500" height="190" alt="IMG_0674" src="https://github.com/user-attachments/assets/1120154b-5e58-49f3-8fa0-1961a5945f21" />
 
 
-<img width="480" height="270" alt="converted 4" src="https://github.com/user-attachments/assets/8a85088f-7e15-4c00-baae-dfc7e1f3cdd9" /><
+<img width="400" height="300" alt="2b275e62-a402-4a57-a72b-1981985f6c58" src="https://github.com/user-attachments/assets/29c59a57-8b14-48bf-b4c9-a720a125497b" />
