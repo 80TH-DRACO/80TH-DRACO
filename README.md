@@ -7,7 +7,7 @@ ill remake this in a bit bro
 <img width="136" height="78" alt="IMG_0648" src="https://github.com/user-attachments/assets/6ab8abf3-422b-4f71-9d80-5fa26ce47342" />
 <img width="137" height="79" alt="IMG_0649" src="https://github.com/user-attachments/assets/a93a37e7-5324-4baf-ac8e-9a5304ed2868" />
 <img width="131" height="78" alt="IMG_0650" src="https://github.com/user-attachments/assets/0d318ce8-f257-411f-af4c-5f37b6b2cb94" />
-
+<img src="https://readme-typing-svg.demolab.com?font=Syne+Mono&size=28&pause=20&color=ff0000&center=true&vCenter=true&repeat=true&width=700&lines=TURNING+IT+UP+TO+ELEVEN+HAHAHAHA!;A+FORMIDABLE+FOE+ILL+BEST+YOU+FOR+SHO;THE+ACE+OF+BLADES!;YOU+NEED+A+NERF.;Oh+you+better+be+nice+or+ill+get+my+dice.;D20+in+hand+dragon+at+my+command.;Winging+it+dragon+style!;SAY+YOUR+PRAYERS+LITTLE+ONE!;LET+THE+BRAWLWERS+HIT+THE+FLOOR.;BUT+MY+SPIRIT+REMAINS+UNBROKEN!;STABIBY+STAB!;FANCY+LANCY;Metal+warriors+number+ONEEEE!;And+To+The+Dragon+Man;I+WILL+I+WILL+ROCK+YOOU!;Flame+WAAAAOOOOR!;INFLATE+O+DRAGOOON!;POWER+CHORD!;Woefully+Wiped+Out.;Dragon+Breath!;Rumble+And+Roar+To+The+Top+I+soarrr!;time+to+shred+some+foes!;You+Want+A+Toast+Get+Ready+To+Roast!;seek+and+destroy!;dive+bomb!;epic+quest+fail.;shoot+to+thrill+play+to+kill!;just+kidding!;i+got+shreded+bleh"/>
 
 <img width="1500" height="180" alt="IMG_0652" src="https://github.com/user-attachments/assets/435e1461-c520-4bd1-b17e-fc1d1251e68e" />
 <img width="99" height="56" alt="IMG_0605" src="https://github.com/user-attachments/assets/aee73222-1004-440e-b660-fac2c0353219" />
