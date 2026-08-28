@@ -75,3 +75,25 @@ ill remake this in a bit bro
 <img width="99" height="56" alt="IMG_0638" src="https://github.com/user-attachments/assets/bb79017c-f132-4520-8a8e-46fb5d3018c4" />
 
 <img width="1500" height="180" alt="IMG_0653" src="https://github.com/user-attachments/assets/3f75d827-1a93-49fb-9199-0bc24b637103" />
+
+
+
+<img width="334" height="112" alt="IMG_0417" src="https://github.com/user-attachments/assets/a4fa3c7b-b466-4cca-b204-fc9388c529c0" />
+<img width="334" height="112" alt="IMG_0436" src="https://github.com/user-attachments/assets/e674a3e1-fc0c-4c50-aaaa-249e9be922c4" />
+<img width="334" height="112" alt="IMG_0419" src="https://github.com/user-attachments/assets/791605f5-6c56-478a-bed5-4377867b3fce" />
+<img width="334" height="112" alt="IMG_0673" src="https://github.com/user-attachments/assets/104cb993-f33b-490f-b94b-c7983827e22d" />
+<img width="334" height="112" alt="IMG_0672" src="https://github.com/user-attachments/assets/9420eb82-68f4-4d5a-b1a8-33f835d93284" />
+<img width="334" height="112" alt="IMG_0671" src="https://github.com/user-attachments/assets/b38b239a-05a9-4347-a273-60c0eb620b43" />
+<img width="334" height="112" alt="IMG_0670" src="https://github.com/user-attachments/assets/9ebadfdb-2bcc-436b-8f00-dbb7e7d9fd85" />
+<img width="334" height="112" alt="IMG_0669" src="https://github.com/user-attachments/assets/ad733776-f67d-4037-99d2-ae2154e4d47a" />
+<img width="334" height="112" alt="IMG_0668" src="https://github.com/user-attachments/assets/aa514200-8da5-429b-bed6-10514f23b960" />
+<img width="334" height="112" alt="IMG_0437" src="https://github.com/user-attachments/assets/0409ad0e-7938-44d7-b9dd-8216256e4f68" />
+<img width="335" height="112" alt="IMG_0666" src="https://github.com/user-attachments/assets/d72e74a7-7638-4cdd-b28e-6461b5452a9d" />
+<img width="335" height="112" alt="IMG_0429" src="https://github.com/user-attachments/assets/9bec65b0-04bc-4266-8ed7-ecaa1921b346" />
+<img width="335" height="112" alt="IMG_0428" src="https://github.com/user-attachments/assets/9aea46a3-283c-4d18-a4f7-b0a36b000e49" />
+
+
+<img width="1500" height="190" alt="IMG_0674" src="https://github.com/user-attachments/assets/1120154b-5e58-49f3-8fa0-1961a5945f21" />
+
+
+<img width="480" height="270" alt="converted 4" src="https://github.com/user-attachments/assets/8a85088f-7e15-4c00-baae-dfc7e1f3cdd9" /><
