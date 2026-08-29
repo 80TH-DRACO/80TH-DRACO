@@ -96,5 +96,42 @@
 
 <img width="1500" height="190" alt="IMG_0674" src="https://github.com/user-attachments/assets/1120154b-5e58-49f3-8fa0-1961a5945f21" />
 
+# hi 
+, hello my sillies! i am 13 and i go as Leu or Jim ,only speaking English online sorry….. i ship draster , manlumi , manlette, dralumi etc etc…. 
+
+, Do NOT copy or inspo my skins, dont colourpick also . 
+
+, Incest shippers dni . 
+
+,Boundary breakers or Ignorers DNI 
+
+, People who refuse to admit theyre wrong iwc. I think you guys can mean it as a joke .
+
+
+, I fictionkin Draco buuutt i dont really roleplay brah . 
+
+,Speaking of roleplaying , do NOT sexually roleplay or roleplay ships with me unless close friends + party members. 
+
+,I am always sleepy braaaahhuu 
+
+, i dont understand stuff well im a slow learner sorrryyyy 
+
+,If you intentionally misgender fictional or real people DNI .
+
+,If you selfship  with a canonical gay/lesbian character and you are the opposite gender of them DNI 
+
+,RPF YUMESHIPPERS DNI DNI DNI DNI DNI 
+
+,i can be dry sometimes hhuuuuuuaaaaaaaa 
+
+, i will immediately assume you as a pervert if you make sexual jokes about minors or fictional characters that as teenagers + children. 
+
+,Sexists , racists, homophobics ,ableists and transphobics dni . 
+
+, If you judge people for SH scars , disorders, disabilities and mental disorders DNI 
+
+, I can be cold sometimes without noticing so uhhh pls lmk bro 
+
+, pls dni if im near my party members or friends , its really hard to focus sorrryyyy
 
 <img width="400" height="300" alt="2b275e62-a402-4a57-a72b-1981985f6c58" src="https://github.com/user-attachments/assets/29c59a57-8b14-48bf-b4c9-a720a125497b" />
