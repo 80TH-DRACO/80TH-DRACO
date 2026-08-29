@@ -134,4 +134,5 @@
 
 , pls dni if im near my party members or friends , its really hard to focus sorrryyyy
 
-<img width="400" height="300" alt="2b275e62-a402-4a57-a72b-1981985f6c58" src="https://github.com/user-attachments/assets/29c59a57-8b14-48bf-b4c9-a720a125497b" />
+<img width="605" height="521" alt="Zamn😍😍😍😍" src="https://github.com/user-attachments/assets/01790711-6e57-4d69-aad7-25a0ee6262a5" />
+
