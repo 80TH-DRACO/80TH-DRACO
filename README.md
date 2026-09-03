@@ -10,7 +10,11 @@
 
 
 do not colourpick , inspo or copy . 
+
+ 
  If i dont respond to you it can mean I’m not in the mood , offtab , afk or busy
+
+If you genuinely provoke me for small stuff i will respectfully block you . 
 
 
 <img width="480" height="322" alt="converted 2" src="https://github.com/user-attachments/assets/fc32aebe-ab66-437a-bfc5-2400fad13878" />
