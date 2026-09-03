@@ -6,8 +6,11 @@
 
 🎭; i dont really use this but i guess its for roleplay 
 
-🟢/💬: int freely . 
+🟢/💬: int , 
 
+
+do not colourpick , inspo or copy . 
+ If i dont respond to you it can mean I’m not in the mood , offtab , afk or busy
 
 
 <img width="480" height="322" alt="converted 2" src="https://github.com/user-attachments/assets/fc32aebe-ab66-437a-bfc5-2400fad13878" />
@@ -107,7 +110,7 @@
 # hi 
 , hello my sillies! i am 13 and i go as Leu or Jim ,only speaking English online sorry….. i ship draster , manlumi , manlette, dralumi etc etc…. 
 
-, Do NOT copy or inspo my skins, dont colourpick also . 
+ 
 
 , Incest shippers dni . 
 
@@ -140,6 +143,6 @@
 
 , I can be cold sometimes without noticing so uhhh pls lmk bro 
 
-, pls dni if im near my party members or friends , its really hard to focus sorrryyyy
+
 
 <img width="605" height="521" alt="Zamn😍😍😍😍" src="https://github.com/user-attachments/assets/01790711-6e57-4d69-aad7-25a0ee6262a5" />
