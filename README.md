@@ -44,6 +44,9 @@ break peoples boundaries ,
 
 <img width="16" height="16" alt="IMG_0712" src="https://github.com/user-attachments/assets/1c6f8941-7ca9-4800-a6c1-9687d5669283" />Sorry buttt if you are in the fandoms of problematic media , dni . Cant accept people like that
 
+
+<img width="334" height="223" alt="IMG_0585" src="https://github.com/user-attachments/assets/122afcc5-cf7f-43ae-b81f-fe56805e22a1" />
+
 # FANDOMS 
 <img width="20" height="20" alt="IMG_0714" src="https://github.com/user-attachments/assets/c0f22977-f324-4d60-a3a1-232cae85a16b" />Brawl stars 
 
