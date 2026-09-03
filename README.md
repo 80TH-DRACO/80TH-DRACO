@@ -18,4 +18,5 @@ If you genuinely provoke me for small stuff i will respectfully block you .
 
 
 
-<img width="230" height="180" alt="IMG_0654" src="https://github.com/user-attachments/assets/29a171ae-fbd3-4855-b2a7-88a7f3c1749f" />
+<img width="130" height="60" alt="IMG_0654" src="https://github.com/user-attachments/assets/29a171ae-fbd3-4855-b2a7-88a7f3c1749f" />
+<img width="1000" height="80" alt="IMG_0652" src="https://github.com/user-attachments/assets/13f1c836-bf5b-40d6-866d-b225d7132937" />
