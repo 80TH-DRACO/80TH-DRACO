@@ -1,5 +1,5 @@
 <img width="300" height="287" alt="IMG_0721" src="https://github.com/user-attachments/assets/46389155-662f-4ece-9ea6-c8d0e4e6e160" />
-<img width="288" height="299" alt="pony-town-🐉🐾 im losing aura-dance move 1-blinking-padded-toy32-4x" src="https://github.com/user-attachments/assets/60df78d1-ceb8-4d0e-a755-92b4c19cab52" />
+<img width="266" height="288" alt="pony-town-🐉🐾 im losing aura-dance move 1-blinking-padded-toy32-4x" src="https://github.com/user-attachments/assets/60df78d1-ceb8-4d0e-a755-92b4c19cab52" />
 
 <img width="300" height="287" alt="IMG_0722" src="https://github.com/user-attachments/assets/8806f832-9051-4ccb-919b-87b703c5c086" />
 
