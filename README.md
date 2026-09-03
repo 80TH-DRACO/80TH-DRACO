@@ -1,4 +1,12 @@
-# ill remake this in a bit bro + made on my tuffest tablet
+# I’ll assume youre from ponytown
+
+⛔; DNI. 
+
+🌙; not in the mood . Iwcuf
+
+🎭; i dont really use this but i guess its for roleplay 
+
+🟢/💬: int freely . 
 
 
 
