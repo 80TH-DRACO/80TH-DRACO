@@ -1,2 +1,8 @@
-<img width="1500" height="308" alt="IMG_0745" src="https://github.com/user-attachments/assets/85da1a47-08a3-4afe-bf45-31e335d27d2d" />
+<img width="1500" height="392" alt="IMG_0750" src="https://github.com/user-attachments/assets/57cee063-c6e8-4035-a861-a4700903fbed" />
 
+
+# PONYTOWN STATUSES 
+🌙- Semitasking / dniuf. 
+⛔- Afk / PRETTY MUCH BUSY.
+🟢 + 💬 - Int . 
+🎭- roleplaying  | i dont use this one at all.
