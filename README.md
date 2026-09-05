@@ -1,8 +1,6 @@
 
 ![Uploading Unknown 58.jpeg…]()
-<img width="735" height="490" alt="Unknown 56" src="https://github.com/user-attachments/assets/f4cbc175-8019-4fe3-bf5c-c6fdf89d92b7" />
-<img width="736" height="736" alt="Unknown 57" src="https://github.com/user-attachments/assets/0aea0024-2c5b-448d-9152-bfac00abd798" />
-<img width="735" height="589" alt="Unknown 59" src="https://github.com/user-attachments/assets/d462f7fd-f26d-432d-aad6-7b6e1bab7387" />
+
 
 
 <img width="1500" height="612" alt="IMG_0762" src="https://github.com/user-attachments/assets/b32f54df-9d81-46bd-897b-a74d9643aeeb" />
