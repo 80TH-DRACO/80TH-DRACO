@@ -26,7 +26,7 @@
 
 # BYI . 
 <img width="32" height="32" alt="IMG_0509" src="https://github.com/user-attachments/assets/5044ea9a-baee-4b90-b470-2459b6855c82" />
-Read strawpage. |Work in process at the moment .
+Read strawpage. .
 
 
 
