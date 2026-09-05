@@ -88,6 +88,9 @@ I can be cold and dry on accident.Its quite normal because im an ISFP-type
 <img width="223" height="112" alt="IMG_0581" src="https://github.com/user-attachments/assets/f4e2b31d-3f5e-479f-9252-1d566a97a3de" />
 <img width="223" height="112" alt="IMG_0582" src="https://github.com/user-attachments/assets/459cdcc2-27d1-4604-8194-0f4d110b5dac" />
 <img width="223" height="112" alt="IMG_0583" src="https://github.com/user-attachments/assets/cd0118c2-9515-4086-8578-bb3946e92405" />
+<img width="223" height="112" alt="IMG_0662" src="https://github.com/user-attachments/assets/fd7b20d2-a48f-44de-831b-1ce56095f3b3" />
+<img width="223" height="112" alt="IMG_0767" src="https://github.com/user-attachments/assets/4d461487-dee7-447a-a925-7a5863097517" />
+
 
 <img width="1500" height="308" alt="IMG_0745" src="https://github.com/user-attachments/assets/bdf5dfb9-0e43-4671-ab1c-6fda956e58e1" />
 
