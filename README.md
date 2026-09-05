@@ -81,9 +81,35 @@ I can be cold and dry on accident.Its quite normal because im an ISFP-type
 <img width="223" height="112" alt="IMG_0588" src="https://github.com/user-attachments/assets/6f41f9a5-b279-4566-88fd-5d92f7b9a1de" />
 <img width="223" height="112" alt="IMG_0606" src="https://github.com/user-attachments/assets/6ec6c2b6-7514-4139-a761-3256dcdf3cf0" />
 <img width="223" height="112" alt="IMG_0602" src="https://github.com/user-attachments/assets/3f1b5a8a-e025-43fe-9773-263ec47370af" />
+<img width="223" height="112" alt="IMG_0331" src="https://github.com/user-attachments/assets/d979c43d-74d1-4b89-bba8-1156439e1c90" />
+<img width="223" height="112" alt="IMG_0530" src="https://github.com/user-attachments/assets/60d24848-d764-419b-851e-91a29ddfc59d" />
+<img width="223" height="112" alt="IMG_0580" src="https://github.com/user-attachments/assets/3063ccd7-f3fc-40b2-ae19-08acccd41e5d" />
+<img width="223" height="112" alt="IMG_0579" src="https://github.com/user-attachments/assets/80061163-0b15-48c9-ae5b-59f9f4198be7" />
+<img width="223" height="112" alt="IMG_0581" src="https://github.com/user-attachments/assets/f4e2b31d-3f5e-479f-9252-1d566a97a3de" />
+<img width="223" height="112" alt="IMG_0582" src="https://github.com/user-attachments/assets/459cdcc2-27d1-4604-8194-0f4d110b5dac" />
+<img width="223" height="112" alt="IMG_0583" src="https://github.com/user-attachments/assets/cd0118c2-9515-4086-8578-bb3946e92405" />
+
+<img width="1500" height="308" alt="IMG_0745" src="https://github.com/user-attachments/assets/bdf5dfb9-0e43-4671-ab1c-6fda956e58e1" />
 
 
+<img width="334" height="133" alt="IMG_0676" src="https://github.com/user-attachments/assets/82b17d4f-960a-402e-9cc8-e33eb52b3bf0" />
 
-
+<img width="334" height="133" alt="IMG_0417" src="https://github.com/user-attachments/assets/5705390b-1ca7-4bff-a84f-8ed0f707801d" />
+<img width="334" height="133" alt="IMG_0418" src="https://github.com/user-attachments/assets/4c93fa3c-0b1e-49bc-88f1-d9481c05edd6" />
 
 <img width="334" height="133" alt="IMG_0436" src="https://github.com/user-attachments/assets/e1518ef8-190f-4bde-947b-101ba640a963" />
+
+# for all i know . 
+sometimes i make kms jokes, please tell me to stop if you’re uncomfortable.
+
+i always try to avoid conflicts, sometimes i may accidentally start them . 
+
+please know that i normally avoid roleplaying as i haven’t roleplayed since 2021. 
+
+i may word some sentences wrong. 
+
+
+
+
+
+
